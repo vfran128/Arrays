@@ -1,1 +1,1 @@
-El jpg del coco es de buena suerte, no tocar o habra consecuencias.
+El jpg del coco da buena suerte, no tocar o habra consecuencias.
